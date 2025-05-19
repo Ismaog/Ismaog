@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @Ismaog
 - 👀 I’m interested in start-up and app building
 - 🌱 I’m currently learning Start-up management
-- 💞️ I’m looking to collaborate on Android App development
 - 📫 How to reach me :
 WhatsApp : +22996608008 , mail: ismaelorougoura@gmail.com
 
